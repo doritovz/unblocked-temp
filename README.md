@@ -1,2 +1,2 @@
-# run3.github.io
-Run 3 Unblocked
+# Unblocked Game Template Window
+Template Page
